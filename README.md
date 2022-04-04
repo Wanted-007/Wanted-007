@@ -1,4 +1,4 @@
-### Hi there, I'm Wanted 😎
+### Hi there, I'm [Wanted](https://discord.com/invite/khatarnak) 😎
 
 
 ### Discord :
