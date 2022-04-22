@@ -4,5 +4,4 @@
 ### Discord :
 [![](https://discord.c99.nl/widget/theme-2/717282136075534337.png)
 
-### Currently Working On [SIRI](https://dsc.gg/siri.gg)
-
+### FIND ME [HERE](https://discord.com/invite/khatarnak)
