@@ -1,4 +1,4 @@
-### Hi there, I'm [Wanted](https://discord.com/invite/khatarnak) 😎
+### Hi there, I'm [Wanted](https://www.instagram.com/_sarin_007/) 😎
 
 
 ### Discord :
