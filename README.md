@@ -4,4 +4,4 @@
 ### Discord :
 ![](https://discord.c99.nl/widget/theme-2/717282136075534337.png)
 
-### FIND ME [HERE](https://discord.com/invite/khatarnak)
+### FIND ME [HERE](https://twitter.com/Wanted_0007)
